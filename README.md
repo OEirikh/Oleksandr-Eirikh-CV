@@ -1,2 +1,2 @@
-# my-rezume
+# Rezume Oleksandr Eirikh
 Rezume Oleksandr Eirikh
